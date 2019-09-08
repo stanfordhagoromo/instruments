@@ -1,4 +1,4 @@
-This compilation seeks to identify the best instruments and stationery for mathematical work.
+This compilation seeks to identify the best instruments and stationery for mathematical work.  PR's welcome.
 
 ## Chalk
 
