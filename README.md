@@ -16,7 +16,7 @@ The classic introductory fountain pen.  The charcoal version is satisfyingly mat
 
 [TWSBI Diamond 580, $50.00](https://www.gouletpens.com/collections/demonstrator-pens/products/twsbi-diamond-580-fountain-pen-clear?variant=11884892028971)
 
-A step up from the Safari, and a worthwhile investment if you switch to exclusively fountain pens.  The transparent casing lets you watch the liquid flow (which is especially fun if you study fluid dynamics).  The ink chamber is a lot larger than the Safari's, so you can
+A step up from the Safari, and a worthwhile investment if you switch to exclusively fountain pens.  The transparent casing lets you watch the liquid flow (which is especially fun if you study fluid dynamics).  The ink chamber is a lot larger than the Safari's, so you can continuously write for about a week before the refill.
 
 ## Ink
 
